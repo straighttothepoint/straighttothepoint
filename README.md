@@ -1,5 +1,9 @@
 ### Hi there 👋
-
+I'm currently a part-time student
+I'm excited to take a new challenges
+I'm looking forward to collaborating with my new team
+You can reach me at marisa.scura@gmail.com
+My pronouns are she/her
 <!--
 **straighttothepoint/straighttothepoint** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
